@@ -1,1 +1,0 @@
-<img src="https://res.cloudinary.com/luffbrands/image/upload/v1613599714/mantis/SleepSuper1_300_ckif4k.svg" >
